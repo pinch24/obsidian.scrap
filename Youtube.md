@@ -17,8 +17,7 @@ AI와 함께 일하는 방법: 전문가는 훨씬 좋다 - 김덕진
 피크아웃 코리아: 월 시나, 로제, 마리아 - 채상욱
 [https://youtu.be/I7Tcd-0NIRY?si=OrN4iJmcNa0TDrTh&t=2046](https://youtu.be/I7Tcd-0NIRY?si=OrN4iJmcNa0TDrTh&t=2046)
 
-월 시나, 월 로제, 월 마리아 - 나무위키
-[https://namu.wiki/w/%EB%B0%A9%EB%B2%BD(%EC%A7%84%EA%B2%A9%EC%9D%98%20%EA%B1%B0%EC%9D%B8)](https://namu.wiki/w/%EB%B0%A9%EB%B2%BD(%EC%A7%84%EA%B2%A9%EC%9D%98%20%EA%B1%B0%EC%9D%B8))
+월 시나, 월 로제, 월 마리아 - 나무위키[https://namu.wiki/w/%EB%B0%A9%EB%B2%BD(%EC%A7%84%EA%B2%A9%EC%9D%98%20%EA%B1%B0%EC%9D%B8)](https://namu.wiki/w/%EB%B0%A9%EB%B2%BD(%EC%A7%84%EA%B2%A9%EC%9D%98%20%EA%B1%B0%EC%9D%B8))
 
 멘토는 공급이 넘칠 수가 없다 - Producer dk
 [https://youtu.be/DUWSE3ks9co?si=qcmHiPzppHV50jRO&t=234](https://youtu.be/DUWSE3ks9co?si=qcmHiPzppHV50jRO&t=234)
